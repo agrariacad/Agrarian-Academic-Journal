@@ -1,2 +1,2 @@
 Agrarian Academic Journal
-Bi-monthly journal published for the publication of technical-scientific paper in the areas of Agronomy, Veterinary Medicine, Animal Science, Food Science and Technology, Forestry Engineering, Environmental, Fishing and related areas.
+Bimonthly international journal aimed at publishing original and unpublished technical-scientific works in the areas of Agronomy, Veterinary Medicine, Animal Science, Food Science and Technology, Forestry Engineering, Environmental Engineering, Fishing Engineering, Aquaculture and related areas.
